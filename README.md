@@ -1,2 +1,2 @@
-# Briones777.github.io
+# briones777.github.io
 My online RESUME
